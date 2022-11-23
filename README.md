@@ -6,4 +6,6 @@
 
 ### Présentation
 
+Robin est très bon en résolution de conflits
+
 🥳
