@@ -6,6 +6,6 @@
 
 ### Présentation
 Témoignage : 
- De très bon voisins
+ ;)
 
 🥳
