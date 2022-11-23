@@ -5,6 +5,8 @@
 ## Présentation du codeur
 
 ### Présentation
+Témoignage : 
+ ;)
 
 Robin est très bon en résolution de conflits
 
